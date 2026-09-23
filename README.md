@@ -1,1 +1,1 @@
-File is a jpeg of Jamie Oxendine
+File above is a jpeg of Jamie Oxendine
